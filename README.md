@@ -70,3 +70,13 @@ Cihan Ertav – [GitHub Profili](https://github.com/cihan-ertav)
 ## 🪪 Lisans
 
 MIT Lisansı – Dilediğin gibi kullan, yıldız atmayı unutma. ⭐
+
+## görseller
+
+![image](https://github.com/user-attachments/assets/09112997-7935-4894-8844-23a7a15eaf4a)
+![image](https://github.com/user-attachments/assets/2a2a2891-6956-43ef-ba66-8fa0ada21257)
+![image](https://github.com/user-attachments/assets/ab780f3e-a9cf-4385-9611-9b222b7b7406)
+![image](https://github.com/user-attachments/assets/d9703572-23ed-423a-97be-cb3f484422d3)
+![image](https://github.com/user-attachments/assets/e74b92ea-3fb4-4cb9-a49d-9f0a4caa3e66)
+
+
